@@ -19,7 +19,7 @@ the first rules were published in 1889.
 In 1895 Lewis Rober, Sr. of Minneapolis organized outdoor games as exercise 
 for firefighters; this game was known as kitten ball (after the first team 
 to play it), lemon ball, or diamond ball. Rober's version of the game used 
-a ball in circumference, rather than the ball used by the Farragut club, and
+a ball 12 inches (30 cm) in circumference, rather than the ball used by the Farragut club, and
 eventually the Minneapolis ball prevailed, although the dimensions of
 the Minneapolis diamond were passed over in favor of the dimensions of
 the Chicago one. Rober may not have been familiar with the Farragut Club
