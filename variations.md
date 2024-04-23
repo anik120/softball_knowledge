@@ -15,7 +15,8 @@ lengthen the pitching distance. Slow pitch achieved formal recognition in 1953
 when it was added to the program of the Amateur Softball Association, and within a
 decade had surpassed fast pitch in popularity.
 
-The first British women's softball league was established in 1953.
+1953 was the year that the first women's softball league was established in the United Kingdom.
+That was the start of the British women's softball league in the year 1953.
 
 The National Softball Hall of Fame and
 Museum was opened in Oklahoma City, United States, in 1957.
